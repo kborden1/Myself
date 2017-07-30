@@ -6,3 +6,4 @@ My hobbies include playing baketball and soccer with friends oustide of schools.
 
 If accepted I can network with professionals and expand my knwoeldge and cresate projects outside of group instruction . I enjoy working with vibrnat people
 Facebook, Snapchat , Linkedln (https://www.linkedin.com/in/kobe-b-289017a8/)
+https://www.facebook.com/kobe124?ref=bookmarks
